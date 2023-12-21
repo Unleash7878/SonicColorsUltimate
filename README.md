@@ -1,1 +1,1 @@
-# Colour
+Sonic Colours Ultimate
